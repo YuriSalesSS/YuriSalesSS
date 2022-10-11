@@ -24,6 +24,7 @@
 
 ## Contatos
 - [Email](yurisales2000@hotmail.com)
-- [Linkedin](linkedin.com/in/yuri-soares-sales-756625218/)
-- [Instagram](instagram.com/yurossauro/)
+- [Linkedin](https://www.linkedin.com/in/yuri-soares-sales-756625218/)
+- [Instagram](https://www.instagram.com/yurossauro/)
+
 
